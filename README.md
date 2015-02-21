@@ -1,2 +1,2 @@
 # technoroverlabs.com
-This website is created by Technorover labs, but his friend 'Heliox Designs' helped!
+This website is created by Technorover Labs, but his friend 'Heliox Designs' helped!
